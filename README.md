@@ -1,5 +1,5 @@
 <details>
-  <summary>Click me</summary>
+  <summary>To view my resume, click HERE</summary>
   
 # Henry Dahl
 
