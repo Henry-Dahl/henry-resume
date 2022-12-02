@@ -8,8 +8,7 @@
 Renaissance High School (2015-2018)
 GPA 3.5, graduated with and Associates of Arts
 
-Brigham Young University - Idaho
-2021 - Current
+Brigham Young University - Idaho (2021 - Current)
 Bacholors in Public Policy and Administration
 Minor in Data Science
 Certificate in Leadership and Business
@@ -33,6 +32,7 @@ Certificate in Leadership and Business
 > 3. Writing
 > 4. Socializing and getting to know people
 > 5. Loyal, enthusiastic, committed, and hard working
+> 6. Social media advertising (Facebook, Instagram, and Twitter)
 
 ### Hobbies
 
