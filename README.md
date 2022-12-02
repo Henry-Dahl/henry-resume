@@ -19,9 +19,12 @@ Certificate in Leadership and Business
 
 > 1. Hugo's Deli - Sandwich Builder 2017-2018
 > 2. The Church of Jesus Chrsot of Latter-Day Saints - Missionary for the Canada Halifax and Montreal Mission 2018-2020
+> 2a. During which I learned to advertise on Facebook, Instagram, and Twitter
 > 3. Deseret Industries - Sales Floor Representative January-April 2021
-> 4. Moxie Pest Control - Salesmen May-August 2021
+> 4. Moxie Pest Control - Salesmen May-August 2021 & 2022
+> 4a. Focused on integrity, making and keeping committments, hard work, and sales skills
 > 5. For the Strength of Youth - Youth councilor June - August 2022
+> 5a. Lead and teach young adults
 > 6. Pizza Hut - Delivery Man and Constumer Service Representative September 2022-Current
 
 
