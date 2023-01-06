@@ -52,3 +52,6 @@ Certificate in Leadership and Business
 Email: henryjdahl@gamil.com
 Phone: (208)809-9166
 linked-in: Henry Dahl 
+
+
+some other things about me, i love the outdoors and activities such as hiking, fishing and rock climbing. I run a podcast called second impressions, and im single.
